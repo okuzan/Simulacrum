@@ -1,7 +1,9 @@
 # Hypothetical Peace Agreement: Reactions and Implications
 
 ## The Premise
-The counter-offensive ends inconclusively. Putin and his regime remain in power, controlling all of Russia. No significant change in plans to aid Ukraine at a strategic level — aid comes in small amounts and with significant delays. This is enough to offset losses but not enough to tip the balance on the front lines. Some countries may see a rise in anti-Ukrainian sentiment. The talks between Russia and the Western powers behind closed doors never stopped. At some point, they reach a mutual understanding, outlining the peace proposal. The point of this article is to explore the public discussion it would arise and its probable perception for the biggest actors in the world arena.
+The counter-offensive concludes inconclusively, leaving Putin and his regime firmly in control of Russia. There is little alteration in the strategic support for Ukraine; assistance arrives in modest quantities and faces significant delays. It serves to mitigate losses rather than shift the balance on the front lines. Some countries may witness a surge in anti-Ukrainian sentiments.
+
+Behind closed doors, talks between Russia and Western powers persist without interruption. Eventually, they arrive at a mutual understanding, culminating in a peace proposal. This article seeks to delve into the ensuing public discourse and how it might be perceived by the world's major players.
 
 ## The Peace Agreement
 1. **Ceasefire**: All military actions stop.
