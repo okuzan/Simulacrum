@@ -60,7 +60,7 @@ Ukraine gains working security guarantees and is admitted to NATO, something it 
 ### How It's a Win for Russia
 Russia acquired new territories that are now internationally recognized. Russia's population increases, which somewhat alleviates its demographic problems.
 
-## Public Opinion (phrased with GPT)
+## Public Opinion
 ### Ukraine: A Nation Divided
 In Ukraine, the peace agreement would likely face strong opposition, especially from military families and veterans. Questions like "Did my son die for nothing?" would dominate public discourse. President Zelensky, who currently exercises significant control over the media due to wartime laws, would have a tough job selling this agreement as a win.
 
