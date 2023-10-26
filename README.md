@@ -61,12 +61,12 @@ Ukraine gains working security guarantees and is admitted to NATO, something it 
 Russia acquired new territories that are now internationally recognized. Russia's population increases, which somewhat alleviates its demographic problems.
 
 ## Public Opinion
-### Ukraine: A Nation Divided
+### Ukraine
 In Ukraine, the peace agreement would likely face strong opposition, especially from military families and veterans. Questions like "Did my son die for nothing?" would dominate public discourse. President Zelensky, who currently exercises significant control over the media due to wartime laws, would have a tough job selling this agreement as a win.
 
 > This isn't mere speculation. In March 2022, during the Istanbul peace talks, the Ukrainian government launched a media campaign against NATO, preparing the public for potential concessions. When the talks failed, they reverted to their pro-NATO stance as if nothing had happened.
 
 Economic hardship and the dire humanitarian situation could also shape public opinion. If Ukraine survives another harsh winter, enthusiasm for prolonged fighting may wane. Russia's bombings of power plants have made life without electricity and heating a grim reality. Given that Ukraine is economically disadvantaged and borders are closed for fighting-age males, the country can't sustain a long-term conflict without significant hardship.
 
-## Russia: A Quiet Majority?
+### Russia
 Inside Russia, the reaction would be mixed but generally favorable. Marginal chauvinistic imperialists would be the main dissenters, as their vision of victory includes the capture of all of Ukraine. However, a significant portion of the population is anti-war, and an even larger segment is indifferent, caring more about economic issues like salaries and inflation than geopolitics. The Russian government would likely try to sell this as a win against the "Ukronazi regime" and the West, capitalizing on nationalistic sentiments.
